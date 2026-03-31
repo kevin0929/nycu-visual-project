@@ -1,1 +1,0 @@
-# nycu-visual-project
